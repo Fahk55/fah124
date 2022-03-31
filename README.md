@@ -1,1 +1,3 @@
 # fah124
+ประวัติ Blackpink
+Blackpink (แบล็กพิงก์) เป็นวงเกิร์ลกรุ๊ปชื่อดังของเกาหลีใต้ สังกัดค่าย YG Entertainment ประกอบด้วยสมาชิกจำนวน 4 คนคือ Jisoo (จีซู), Jennie (เจนนี), Rosé (โรเซ) และ Lisa (ลิซ่า) โดยวงได้เปิดตัวครั้งแรกเมื่อวันที่ 8 สิงหาคม ปี 2016 ในงานโชว์เคสพร้อมกับซิงเกิ้ลอัลบั้มที่มีชื่อว่า “Square One” หลังจากวางจำหน่ายไป ซิงเกิ้ล "Whistle" กลายเป็นเพลงแรกของวงที่ขึ้นอันดับ 1 บน Gaon Digital Chart เช่นเดียวกันกับซิงเกิ้ล "Boombayah" กลายเป็นเพลงแรกที่ติดอันดับ 1 บน Billboard World Digital Songs chart อีกทั้งวงยังได้รับรางวัล Golden Disc Awards และ Seoul Music Awards สาขาศิลปินหน้าใหม่แห่งปี หลังจากนั้น Blackpink ได้ปล่อยผลงานเพลงฮิตออกมามากมายทั้ง “Playing with Fire”, “Stay”, “As If It's Your Last” และ “Ddu-Du Ddu-Du”
